@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GUFD960123MCSTLN01
+GUFD960123MCSTLN01
